@@ -1,1 +1,1 @@
-Should designers git, though?
+Should designers git, do you think?
